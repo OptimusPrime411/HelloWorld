@@ -1,3 +1,3 @@
 # HelloWorld
 This is my first Github repository
-This is my first edit or change to the main reposiory .
+Michael Jackson could do the Moon Walk. Elon Musk started SpaceX. Our fascination with space is really cool, so why dont we all get spaced-out 
